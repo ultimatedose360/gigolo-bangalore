@@ -1,7 +1,7 @@
 # gigolo-bangalore
-Geniune and trusted Gigolo Male Escort Service in Bangalore. Find out Gigolos around you. Online Booking Avalibale. 
+Geniune and trusted Gigolo Male Escort Service in Bangalore. Find out Gigolos around you. Online Booking Available. 
 
-online gigolo booking in bangalore ultimatedose360@gmail.com
+online gigolo booking in bangalore ultimatedose360@gmail.com or visit https://sites.google.com/view/gigolobangalore
 
 Hey ladies, looking for more than fun? or you need someone to be around? looking for a good company? are you unsatisfied with your sexual life?  do you expect extra pleasure in your existing life? Try our Gigolos
 
@@ -15,3 +15,4 @@ Come to us. We welcome all the women seeking men in Bangalore. We have the best 
 
 
 ultimatedose360@gmail.com
+https://sites.google.com/view/gigolobangalore
